@@ -52,6 +52,6 @@ Engineering Leader with **20+ years of experience** scaling global platform engi
 ### 🌐 Connect & Collaborate
 
 * 💼 **LinkedIn:** [Chandra Sekhar Arveti](https://www.linkedin.com/in/chandra-sekhar-arveti)
-* 📧 **Email:** arveti.chandrashekar@gmail.in
+* 📧 **Email:** arveti.chandrashekar@gmail.com
 * 📱 **Mobile:** +918374714141
 * 📍 **Location:** Hyderabad, Telangana, India
